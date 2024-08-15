@@ -1,7 +1,5 @@
-CARA DOWNLOAD
+cara download tinggal pencet releases terus pencet file nya 
 
-PENCET MAIN YANG ADA DI ATAS ABIS ITU KE TAGS TERUS CARI FILE YANG PENGEN KAMU DOWNLOAD 
-
-LEBIH SIMPLE NYA VIEW ALL TAGS 
+cuman orang sehat yang  paham dan ngerti!
 
 KALO ORANG SEHAT PASTI TAU DAN NGERTI!
